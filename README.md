@@ -1,6 +1,6 @@
 # Render Mart
 
-![Frame 1](https://github.com/anushkadeshpande/rendermart/assets/53345232/434d9ac2-3e50-4bcc-b53b-de56b70d3484)
+![Frame 1 (1)](https://github.com/anushkadeshpande/rendermart/assets/53345232/af10073e-0c0f-4057-983a-ecf61be28bc4)
 <br>
 <br>
 <br>
